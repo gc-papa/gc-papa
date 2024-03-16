@@ -2,7 +2,7 @@
 - 👀 I’m interested in gardening
 - 🌱 I’m currently learning Pǔtōnghuà
 - 💞️ I’m looking to collaborate on space expedition discovering parent planetary systems ......
-- 📫 How to reach me? with traditional paper "pizzino"
+- 📫 How to reach me? with traditional paper "pizzinu"
 - 😄 Pronouns: Zorro
 - ⚡ Fun fact: Ha!
 
